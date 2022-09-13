@@ -3,6 +3,7 @@
 - 🌱 I’m currently learning blindarmenzündung
 - 💞️ I’m looking to collaborate on sex
 - 📫 How to reach me... you don't
+- 💋 I love hot chocolate (and hot processors)
 
 <!---
 Marci599/Marci599 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
